@@ -1,2 +1,2 @@
-## Bem vindo ao meu perfil💥
-## Nome: Vitor Gabriel 
+Bem vindo ao meu perfil💥
+Nome: Vitor Gabriel 
